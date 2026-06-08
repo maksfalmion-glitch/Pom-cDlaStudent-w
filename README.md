@@ -1,1 +1,0 @@
-# Pom-cDlaStudent-w
